@@ -1,0 +1,12 @@
+tgrkgtrgklçtgktrçlkgrt
+eetrtrt
+trç~tçrtr
+ttr
+tr
+trtr
+rt
+t
+tr
+tr
+ttr
+trtt
